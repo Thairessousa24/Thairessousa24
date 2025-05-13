@@ -12,7 +12,7 @@ Nas horas vagas, gosto de ler, cantar, ver filmes, jogar, tocar e ficar em casa 
 No fim das contas, estou sempre buscando ser alguém melhor do que fui ontem — como pessoa, como estutante, e como parte do mundo 🌱.
 
 ### Se quiser trocar uma ideia, compartilhar algo sobre anime ou só bater um papo, tô por aqui! 📩😊
-<img src="https://tenor.com/pt-BR/view/happy-mushi-happy-muichiro-muichiro-happy-demon-slayer-happy-happy-demon-slayer-gif-13613595104540193670.gif" style="display: block; margin-left: auto; margin-right: auto;"/>  <img src="https://tenor.com/pt-BR/view/one-piece-luffy-strawhats-gif-18239748.gif" style="display: block; margin-left: auto; margin-right: auto;"/>
+<img src="https://tenor.com/pt-BR/view/happy-mushi-happy-muichiro-muichiro-happy-demon-slayer-happy-happy-demon-slayer-gif-13613595104540193670.gif" style="display: block; margin-left: auto; margin-right: auto;"/> <img src="https://tenor.com/pt-BR/view/one-piece-luffy-strawhats-gif-18239748.gif" style="display: block; margin-left: auto; margin-right: auto;"/>
 
 <!---
 Thairessousa24/Thairessousa24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
