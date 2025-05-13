@@ -1,9 +1,9 @@
-## E aí! 😄
+### E aí! 😄
 Sou a Thaires 👋, uma pessoa de mente aberta, curiosa e apaixonada por anime 😎. Gosto de me envolver em projetos que realmente façam sentido pra mim e para quem está junto — acredito muito no poder das boas conexões e de trabalhar com propósito 🤝✨.
 
 Desde que comecei minha jornada, sempre fui movida por desafios 💪. Não importa se é algo novo ou algo que já conheço bem — encaro tudo como uma chance de crescer, de pensar diferente e de encontrar soluções criativas 💡. Tenho uma vibe bem “mão na massa”, gosto de fazer acontecer e ver resultado, mas sem perder o bom humor no processo 😄.
 
-Profissionalmente, atuo na área de estudante 📚 como 1 Ds, onde tento me organizar, com empatia e muita responsabilidade. Acredito que o sucesso vem quando a gente combina competência com respeito e dedicação ✨.
+Profissionalmente, atuo na área de estudante 📚 como Desenvolvedora de Sistemas, onde tento me organizar, com empatia e muita responsabilidade. Acredito que o sucesso vem quando a gente combina competência com respeito e dedicação ✨.
 
 Sou fã de uma boa conversa 🗣️, de trocar experiências, ouvir ideias novas e, claro, colaborar. Trabalhar junto com pessoas diferentes me motiva demais — acho incrível como cada um tem algo único pra contribuir 🌍.
 
@@ -11,7 +11,7 @@ Nas horas vagas, gosto de ler, cantar, ver filmes, jogar, tocar e ficar em casa 
 
 No fim das contas, estou sempre buscando ser alguém melhor do que fui ontem — como pessoa, como estutante, e como parte do mundo 🌱.
 
-Se quiser trocar uma ideia, compartilhar projetos ou só bater um papo, tô por aqui! 📩😊
+### Se quiser trocar uma ideia, compartilhar algo sobre anime ou só bater um papo, tô por aqui! 📩😊
 
 
 
