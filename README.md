@@ -7,7 +7,7 @@ Profissionalmente, atuo na área de estudante 📚 como Desenvolvedora de Sistem
 
 Sou fã de uma boa conversa 🗣️, de trocar experiências, ouvir ideias novas e, claro, colaborar. Trabalhar junto com pessoas diferentes me motiva demais — acho incrível como cada um tem algo único pra contribuir 🌍.
 
-Nas horas vagas, gosto de ler, cantar, ver filmes, jogar, tocar e ficar em casa 🎀. É assim que recarrego as energias e volto ainda mais animada pra encarar a rotina.
+Nas horas vagas, gosto de cantar, ver filmes, jogar e ficar em casa 🎀. É assim que recarrego as energias e volto ainda mais animada pra encarar a rotina.
 
 No fim das contas, estou sempre buscando ser alguém melhor do que fui ontem — como pessoa, como estutante, e como parte do mundo 🌱.
 
