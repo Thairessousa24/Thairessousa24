@@ -1,5 +1,5 @@
 ## E aí! 😄
-Sou a Thaires 👋, uma pessoa de mente aberta, curiosa e apaixonada por anime 😎. Gosto de me envolver em conversas — acredito muito no poder das boas conexões e com propósito 🤝✨.
+Sou a Thaires 👋, uma pessoa de mente aberta, curiosa e apaixonada por anime 😎. Gosto de me envolver em conversas — acredito muito no poder das boas conexões  🤝✨.
 
 Desde que comecei minha jornada, sempre fui movida por desafios 💪. Fico com medo de errar — mas tento encarar tudo com uma chance de crescer, de pensar diferente e de encontrar soluções criativas 💡. As pessoas fala que eu tenho um “humor duvidoso”, mas, acredito que não. Sempre gosto de ter um bom humor, mesmo nos momentos dificeis 😄.
 
