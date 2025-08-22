@@ -9,7 +9,7 @@ Sou fã de uma boa conversa 🗣️, de trocar experiências, ouvir ideias novas
 
 Nas horas vagas, gosto de ver filmes, jogar e ficar em casa 🎀. É assim que recarrego as energias e volto ainda mais animada pra encarar a rotina.
 
-No fim das contas, estou sempre buscando ser alguém melhor do que fui ontem — como pessoa, como estutante, e como parte do mundo 🌱.
+No fim das contas, estou sempre buscando ser alguém melhor do que fui ontem — como pessoa, como estudante, e como parte do mundo 🌱.
 
 ## Se quiser trocar uma ideia, ou compartilhar algo sobre anime, ou ate mesmo só bater um papo. Tô por aqui! 📩😊
 <img src="https://tenor.com/pt-BR/view/happy-mushi-happy-muichiro-muichiro-happy-demon-slayer-happy-happy-demon-slayer-gif-13613595104540193670.gif" style="display: block; margin-left: auto; margin-right: auto;"/> 
