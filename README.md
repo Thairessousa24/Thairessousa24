@@ -1,7 +1,7 @@
 ## E aí! 😄
 Sou a Thaires 👋, uma pessoa de mente aberta, curiosa e apaixonada por anime 😎. Gosto de me envolver em conversas — acredito muito no poder das boas conexões  🤝✨.
 
-Desde que comecei minha jornada, sempre fui movida por desafios 💪. Fico com medo de errar — mas tento encarar tudo com uma chance de crescer, de pensar diferente e de encontrar soluções criativas 💡. As pessoas fala que eu tenho um “humor duvidoso”, mas, acredito que não. Sempre gosto de ter um bom humor, mesmo nos momentos dificeis 😄.
+Desde que comecei minha jornada, sempre fui movida por desafios 💪. Fico com medo de errar — mas tento encarar tudo com uma chance de crescer, de pensar diferente e de encontrar soluções criativas 💡. As pessoas falam que eu tenho um “humor duvidoso”, mas, acredito que não. Sempre gosto de ter um bom humor, mesmo nos momentos dificeis 😄.
 
 Profissionalmente, atuo na área de estudante 📚 como Desenvolvedora de Sistemas, onde tento me organizar, com empatia e muita responsabilidade. Acredito que o sucesso vem quando a gente combina competência com respeito e dedicação ✨.
 
