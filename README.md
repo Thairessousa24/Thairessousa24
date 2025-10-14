@@ -14,7 +14,8 @@ No fim das contas, estou sempre buscando ser alguém melhor do que fui ontem —
 ## Se quiser trocar uma ideia, ou compartilhar algo sobre anime, ou ate mesmo só bater um papo. Tô por aqui! 📩😊
 <img src="https://tenor.com/pt-BR/view/happy-mushi-happy-muichiro-muichiro-happy-demon-slayer-happy-happy-demon-slayer-gif-13613595104540193670.gif" style="display: block; margin-left: auto; margin-right: auto;"/> 
 <!---
+<img src="(https://github.com/user-attachments/assets/79b32dc3-04f8-4725-a6fc-dd745bf688d9)"
+
 Thairessousa24/Thairessousa24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-![One Piece Luffy GIF - One Piece Luffy Laughing - Discover   Share GIFs](https://github.com/user-attachments/assets/79b32dc3-04f8-4725-a6fc-dd745bf688d9)
