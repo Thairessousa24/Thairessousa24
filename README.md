@@ -17,3 +17,4 @@ No fim das contas, estou sempre buscando ser alguém melhor do que fui ontem —
 Thairessousa24/Thairessousa24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+![One Piece Luffy GIF - One Piece Luffy Laughing - Discover   Share GIFs](https://github.com/user-attachments/assets/79b32dc3-04f8-4725-a6fc-dd745bf688d9)
