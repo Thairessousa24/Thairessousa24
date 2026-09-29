@@ -12,7 +12,7 @@ Nas horas vagas gosto de jogar Brawl Star e ficar em casa no meu quartinho 🎀.
 No fim das contas, estou sempre buscando ser alguém melhor do que fui ontem — como pessoa, como estudante, como amiga, como namorada, e como parte do mundo 🌱.
 
 ## Se quiser compartilhar algo sobre anime, ou ate mesmo tirar uma dúvida. Tô por aqui! 📩😊
-<img src="https://tenor.com/pt-BR/view/happy-mushi-happy-muichiro-muichiro-happy-demon-slayer-happy-happy-demon-slayer-gif-13613595104540193670.gif" style="display: block; margin-left: auto; margin-right: auto;"/> 
+<img src="https://tenor.com/pt-BR/view/happy-mushi-happy-muichiro-muichiro-happy-demon-slayer-happy-happy-demon-slayer-gif-13613595104540193670.gif" style="display: block; margin-left: auto; margin-right: auto;"/> <img src="https://giffiles.alphacoders.com/350/35057.gif" width="500" style="display: block; margin-left: auto; margin-right: auto;"/>
 <!---
 Thairessousa24/Thairessousa24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
